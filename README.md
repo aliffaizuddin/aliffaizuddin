@@ -1,7 +1,7 @@
 # Hi, I'm Aliff Aizuddin
 
-📧 **Email:** [aliffaizuddin47@gmail.com](mailto:aliffaizuddin47@gmail.com)  
-🔗 **LinkedIn:** [linkedin.com/in/aliff-aizuddin-562362235](https://linkedin.com/in/aliff-aizuddin-562362235)
+**Email:** [aliffaizuddin47@gmail.com](mailto:aliffaizuddin47@gmail.com)  
+**LinkedIn:** [linkedin.com/in/aliff-aizuddin-562362235](https://linkedin.com/in/aliff-aizuddin-562362235)
 
 ---
 
